@@ -7,8 +7,8 @@ https://www.haikudeck.com/p/EOLwON3y6p/why-study-buddhism
 
 ## Anatta
 https://www.haikudeck.com/p/ZhRiuYQnoo/anatta
-## 
-8 Misconceptions in Buddhism
+
+## 8 Misconceptions in Buddhism
 https://www.haikudeck.com/p/VQsrOj70pE/8-misconceptions-in-buddhism
 
 ## 14 Big Ideas of Buddhism
