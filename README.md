@@ -12,7 +12,7 @@ https://www.haikudeck.com/p/ZhRiuYQnoo/anatta
 https://www.haikudeck.com/p/VQsrOj70pE/8-misconceptions-in-buddhism
 
 ## 14 Big Ideas of Buddhism
-https://www.haikudeck.com/p/JO34vH3Vnm/14-big-ideas-of-buddhism
+https://www.haikudeck.com/14-big-ideas-of-buddhism-education-presentation-JO34vH3Vnm
 
 ## 'HigherReality', higher understanding
 https://www.haikudeck.com/higher-reality-higher-learning-education-presentation-0X8JKQ1W87
