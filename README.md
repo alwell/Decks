@@ -1,6 +1,9 @@
 # Decks
 Online presentations by Alan Weller
 
+## 5 Misconceptions in mindfulness and why they may be harming your pupils
+
+[https://haikudeck.com/p/3fbd59086c](https://haikudeck.com/p/3fbd59086c)
 
 ## Why study Buddhism?
 https://www.haikudeck.com/p/EOLwON3y6p/why-study-buddhism
