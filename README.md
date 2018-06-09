@@ -1,7 +1,7 @@
 # Decks
 Online presentations by Alan Weller
 
-## 5 Misconceptions in mindfulness and why they may be harming your pupils
+## 5 Misconceptions in Mindfulness and why they may be harming your pupils
 
 [https://haikudeck.com/p/3fbd59086c](https://haikudeck.com/p/3fbd59086c)
 
